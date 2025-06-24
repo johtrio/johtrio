@@ -4,6 +4,6 @@
 
    <img src="https://i.postimg.cc/NFMF41KR/IMG-20250512-221934.png">
 
-   [RENTRY](https://rentry.co/mclittlebrother)      ‎ ‎  ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎             [ATABOOK](https://saburo.atabook.org/)
+i need you to lokc the fuck in
 
 <img src="https://i.postimg.cc/pVnFwHYd/Untitled325-20250531161649.png">
