@@ -3,6 +3,6 @@
 <p align="center">
 
   <img src="https://i.postimg.cc/d37R564P/20250929-212758.jpg"> <p align="center">       
-  [rentry](https://rentry.co/pkspsilver)⠀ ⠀ [atabook](https://saburo.atabook.org)
+  [rentry](no)⠀ ⠀ [atabook](https://saburo.atabook.org)
 
 ## 
