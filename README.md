@@ -1,7 +1,7 @@
-##  ⌗ ♬⋆.˚⠀⠀𝐄𝐕𝐄𝐑𝐘𝐓𝐇𝐈𝐍𝐆 that rises sets, and everything that grows, grows old.
+##  ⌗ ♬⋆.˚⠀⠀
 
 <p align="center">
-  <img src="https://i.postimg.cc/RVWY8FQS/Untitled523-20251216211550.png"> <p align="center">       
+  <img src="https://files.catbox.moe/pa4or4.png"> <p align="center">       
  ⏮ ⠀⠀‎𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 info . 𝄞 ⠀⠀⏭
 
 ##
@@ -9,7 +9,7 @@
 <p align="center">
 
 ⠀⠀
-## ♪ ₊ ⊹ ⠀⠀𝐃𝐑𝐄𝐀𝐌𝐈𝐍𝐆_WING. exe
+## ♪ ₊ ⊹ ⠀⠀
 
 🗨 ; I don't play often, and when I do, I'm most likely with a friend already. Although, if I'm alone I don't mind if you want to be friends, infact I encourage it !
 
@@ -19,7 +19,7 @@
 
 🗨 ; I will never interact first, unless we are very close. 
 
-## ୭˚. ⠀⟡⠀𝐍𝐄𝐖_STAR. ogg
+## ୭˚. ⠀⟡⠀
 
 <p align="right">
 I heavily dislike slurs, even if you can reclaim them. So please tone those down with me. ⠀; 🗨
