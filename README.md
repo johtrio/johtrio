@@ -1,7 +1,7 @@
 ##  ⌗ ♬⋆.˚⠀⠀
 
 <p align="center">
-  <img src="https://files.catbox.moe/pa4or4.png"> <p align="center">       
+  <img src="https://files.catbox.moe/kweu8j.png"> <p align="center">       
  ⏮ ⠀⠀‎𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 info . 𝄞 ⠀⠀⏭
 
 ##
