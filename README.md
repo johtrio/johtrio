@@ -19,6 +19,8 @@
 
 🗨 ; I will never interact first, unless we are very close. 
 
+🗨 ; Don't be scared to interact.. I'm more scared of you than you are of me.
+
 ## ୭˚. ⠀⟡⠀
 
 <p align="right">
@@ -29,6 +31,8 @@ I often playbully others, don't take it personally, I never mean the things I sa
 Ask me for my socials, I may act dry sometimes out of habit but I try to refrain from doing so. Reply time is not consistent, keep that in mind.⠀; 🗨
 <p align="right">
 Tonetags are not needed. ⠀; 🗨
+<p align="right">
+I'm often avoidant, please be patient with me. ⠀; 🗨
 
 ##
 
