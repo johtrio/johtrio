@@ -5,34 +5,35 @@
  ⏮ ⠀⠀‎𝐏𝐨𝐧𝐲𝐭𝐨𝐰𝐧 info . 𝄞 ⠀⠀⏭
 
 ##
-
-<p align="center">
-
-⠀⠀
+  ⠀⠀
 ## ♪ ₊ ⊹ ⠀⠀
 
-🗨 ; I don't play often, and when I do, I'm most likely with a friend already. Although, if I'm alone I don't mind if you want to be friends, infact I encourage it !
+🗨 ; I don't play often, and when I do, I'm most likely with a friend already. Although, if I'm alone I don't mind if you want to be friends, infact I do encourage it.
 
-🗨 ; C + H is welcomed, idrm even if I am not familiar with you.  
+🗨 ; C + H is welcomed, I don't really mind even if I am not familiar with you.  
 
-🗨 ; Often at island, music project, twst, fnaf area, roaming, or with friends. 
+🗨 ; I am always roaming.
 
-🗨 ; I will never interact first, unless we are very close. 
+🗨 ; I will never interact first, unless we are very close.
 
 🗨 ; Don't be scared to interact.. I'm more scared of you than you are of me.
+
+##
 
 ## ୭˚. ⠀⟡⠀
 
 <p align="right">
-I heavily dislike slurs, even if you can reclaim them. So please tone those down with me. ⠀; 🗨
+I heavily dislike slurs, even if you can reclaim them. So do hold back from using them when with me. ⠀; 🗨
 <p align="right">  
-I often playbully others, don't take it personally, I never mean the things I say when I do. I will stop if you ask me to. If I say something that upsets you, please let me know as I'm no mind reader and I will not repeat what happened to upset you.⠀; 🗨
+I often playbully others, don't take it personally, I never mean the things I say when I do. I will stop if you ask me to. If I say something that upsets you, please let me know and I will not repeat what I did to upset you.⠀; 🗨
 <p align="right">
-Ask me for my socials, I may act dry sometimes out of habit but I try to refrain from doing so. Reply time is not consistent, keep that in mind.⠀; 🗨
+Most of my socials are in my guns.lol, I may act dry sometimes out of habit but I try to refrain from doing so. Reply time is not consistent, keep that in mind.⠀; 🗨
 <p align="right">
 Tonetags are not needed. ⠀; 🗨
 <p align="right">
 I'm often avoidant, please be patient with me. ⠀; 🗨
+<p align="right">
+My energy varies a lot, and i mostly cannot help it. ⠀; 🗨
 
 ##
 
