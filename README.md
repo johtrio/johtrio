@@ -16,7 +16,7 @@
 
 🗨 ; I will never interact first, unless we are very close.
 
-🗨 ; Don't be scared to interact.. I'm more scared of you than you are of me.
+🗨 ; Don't be scared to interact, even if I don't bother to initiate it at first.
 
 ##
 
