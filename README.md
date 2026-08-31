@@ -7,4 +7,4 @@
 ## <p align="center">││╷││╷╷│╷││╷││╷╷│╷││╷││
 
 <p align="center">
-encompassed and swallowed through ${\textsf{\color{#632E56}spac e by the universe .}}$
+encompassed and swallowed through ${\textsf{\color{#632E56}space by the universe .}}$
