@@ -2,7 +2,7 @@
 
 <p align="center">  But you have answers,
 
-<img align="center" src="https://files.catbox.moe/jizyuc.png" witdh="450" height="490">
+<img align="center" src="https://files.catbox.moe/rb6pnp.png" witdh="450" height="490">
 
 ## <p align="center"> ⚬──────────✧──────────⚬  
 
