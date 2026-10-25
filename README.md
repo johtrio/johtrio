@@ -1,10 +1,10 @@
   ![](https://komarev.com/ghpvc/?username=johtrio&color=1C0B1B&label=dandelions&abbreviated=true&style=plastic)
 
-<p align="center"> just a drop of water suffices .
+<p align="center">  But you have answers,
 
-<img align="center" src="https://files.catbox.moe/6nxxxf.png" witdh="450" height="490">
+<img align="center" src="https://files.catbox.moe/jizyuc.png" witdh="450" height="490">
 
-## <p align="center">││╷││╷╷│╷││╷││╷╷│╷││╷││
+## <p align="center"> ⚬──────────✧──────────⚬  
 
 <p align="center">
-encompassed and swallowed through ${\textsf{\color{#632E56}space by the universe .}}$
+braieph embassador ,, always up 4 interaction (๑>؂•̀๑)
